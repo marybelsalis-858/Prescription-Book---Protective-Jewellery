@@ -1,6 +1,15 @@
 # Prescription Book — Protective Jewellery
 
+
+
+
+
+
+
+<img width="1448" height="1086" alt="ChatGPT Image Aug 14, 2026 at 03_54_04 PM" src="https://github.com/user-attachments/assets/3bc8ff6f-6d78-41e3-8368-4ba8fe5131c8" />
+
 ### Jewellery, protection & process
+public research archive documenting sources, process, participation and outcomes
 
 **Prescription Book** is an ongoing artistic research project by Marybel Salis exploring jewellery as more than decoration: as a protective object, a form of self-expression, and a carrier of memory and cultural inheritance.
 
